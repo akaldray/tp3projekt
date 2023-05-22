@@ -1,1 +1,1 @@
-Nadia TYburska 193329 + Małgorzata Sokolińska 193434
+Nadia Tyburska 193329 + Małgorzata Sokolińska 193434
